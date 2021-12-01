@@ -1,4 +1,4 @@
 Emil Andreasen Klahn
 
-e@eklahn.com  
+emil.klahn@gmail.com  
 www.eklahn.com  
